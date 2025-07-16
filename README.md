@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Piyush Kumar
-**A passionate Java Developer || Web Developer **
+A passionate Java Developer || Web Developer 
 
 Email Me 👉 ✉️ **piyushkumar95415@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
